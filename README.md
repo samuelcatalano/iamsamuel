@@ -1,2 +1,0 @@
-# iamsamuel
-Personal Website
